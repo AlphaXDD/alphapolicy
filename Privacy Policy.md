@@ -1,3 +1,7 @@
+                                                              Privacy Policy
+
+
+
 our safety is important to us. For this reason, your personal data that you will share with us is protected with sensitivity.
 
 Our multifunctional bot collects and processes certain data from guild members in order to provide a seamless and efficient user experience.
